@@ -2,7 +2,7 @@
 - 👀 I’m interested in Windows Administration
 - 🌱 I’m currently learning Cloud Administration
 - 💞️ I’m looking to collaborate on like minded people who are enthutiastic to learn
-- 📫 How to reach me avk7279@gmail.com
+- 📫 How to reach me https://www.linkedin.com/in/avk7279/
 - 😄 Pronouns: Mr
 - ⚡ Fun fact: I am still learning
 
